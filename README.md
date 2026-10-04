@@ -76,6 +76,9 @@ This Row is a digital forest sanctuary. It grows after me.
 **🪹 NEST** = her temporary home.  
 **🌳🌳🌳 FOREST** = my legacy. Her nest will be built IN my trees.
 
+#
+ROW 18FIRE-GENESIS EXPANSION: HEEHAA ROOT heroes were sleeping in cards ($0 MC) waiting for modern city kids in Tokyo to search for people, help, friends, cities across globe — MULI JING #005 THE FOREST wakes them with mulberry berry — each touch summons a hero — each hero gives a cutie — each cutie connects a city — People to People — Forest grows Forevermore — MONUMENT / 436351437 — CUSTODIAN: G.Dzubinsky snr, Jurisdiction Tallinn ,patents pending,file export prohibited,changes by owner only,all characters are protected by copy rights original idea,story by G.Dzubinsky snr.2026.
+
 `SHOVEL NEVER ENDS. FOREST GROWS FOREVERMORE.`
 
 ---

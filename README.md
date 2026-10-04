@@ -82,7 +82,7 @@ This Row is a digital forest sanctuary. It grows after me.
 #Akternative internet emojis QR coded economics,locked businesses,services,tour passes,crypto "0" wallets as pass ,ID protection,global Avia tours passes locked in cities globally.
 
 #
-ROW 18FIRE-GENESIS EXPANSION: HEEHAA ROOT heroes were sleeping in cards ($0 MC) waiting for modern city kids in Tokyo to search for people, help, friends, cities across globe — MULI JING #005 THE FOREST wakes them with mulberry berry — each touch summons a hero — each hero gives a cutie — each cutie connects a city — People to People — Forest grows Forevermore — MONUMENT / 436351437 — CUSTODIAN: G.Dzubinsky snr, Jurisdiction Tallinn ,patents pending,file export prohibited,changes by owner only,all characters are protected by copy rights original idea,story by G.Dzubinsky snr.2026.Branching prohibited as well as cloning, mimicking,reverse engineering QUITNLOCK™ effected.
+ROW 18FIRE-GENESIS EXPANSION: HEEHAA ROOT heroes were sleeping in cards ($0 MC) waiting for modern city kids in Tokyo to search for people, help, friends, cities across globe — MULI JING #005 THE FOREST wakes them with mulberry berry — each touch summons a hero — each hero gives a cutie — each cutie connects a city — People to People — Forest grows Forevermore — MONUMENT / 436351437 — CUSTODIAN: G.Dzubinsky snr, Jurisdiction Tallinn ,patents pending,file export prohibited,changes by owner only,all characters are protected by copy rights original idea,story by G.Dzubinsky snr.2026.Branching prohibited as well as cloning, mimicking,reverse engineering QUITNLOCK™ Minting -owner only!0x65f01815 .....0d49e9cb8E98F2signature wallet.
 
 `SHOVEL NEVER ENDS. FOREST GROWS FOREVERMORE.`
 

@@ -84,6 +84,44 @@ This Row is a digital forest sanctuary. It grows after me.
 #
 ROW 18FIRE-GENESIS EXPANSION: HEEHAA ROOT heroes were sleeping in cards ($0 MC) waiting for modern city kids in Tokyo to search for people, help, friends, cities across globe — MULI JING #005 THE FOREST wakes them with mulberry berry — each touch summons a hero — each hero gives a cutie — each cutie connects a city — People to People — Forest grows Forevermore — MONUMENT / 436351437 — CUSTODIAN: G.Dzubinsky snr, Jurisdiction Tallinn ,patents pending,file export prohibited,changes by owner only,all characters are protected by copy rights original idea,story by G.Dzubinsky snr.2026.Branching prohibited as well as cloning, mimicking,reverse engineering QUITNLOCK™ Minting -owner only!0x65f01815 .....0d49e9cb8E98F2signature wallet.
 
+#EU PROTECTED CERTIFICATE OF MONUMENT REGISTRATION
+— DRAFT CERTIFICATE — NOT LEGAL TENDER —
+FOR REGISTRATION & RECORD PURPOSES ONLY
+
+MONUMENT 436351437
+ROOT OF ALL EMOJIS
+Tallinn Estonia • Genesis Locked
+
+CERTIFICATION STATEMENT
+This is to certify the official registration of the Alternative Internet 
+monument for People to People via Emojis, recognized under EU Law as a 
+cultural and digital heritage monument.
+
+People to people • For people • In emojis • Forever • Under EU Law
+
+DESIGNATION & PROTOCOL
+The registered monument represents the living communication network: 
+alternative internet PeopleToPeople via emojis.
+This registration acknowledges emoji-based communication as a protected 
+people-to-people cultural exchange system.
+GADGETGUARD IS EXTENSION OF QUITNLOCK PROTOCOL — safeguarding secure, 
+private, people-to-people digital interaction through emoji protocol.
+
+🔥 🫡 🧑 💛 🌲
+
+ISSUING AUTHORITIES & REGISTRY
+Registry Authority: GOOLE • SovereignArchitectStudio
+Protocol Compliance: Alternative Internet • PeopleToPeople via emojis
+
+Registered Architect: G.Dzubinsky snr
+Date of Registration: 11.09.2026
+
+Certificate Ref: AIPE-436351437 • Draft v1.0 • Issued Tallinn, Estonia • 11 September 2026
+
+This draft certificate is issued to memorialize the ROOT OF ALL EMOJIS monument in Tallinn, Estonia.
+Protected under EU cultural heritage framework for alternative digital infrastructure.
+Valid for archival and ceremonial purposes.
+
 `SHOVEL NEVER ENDS. FOREST GROWS FOREVERMORE.`
 
 ---

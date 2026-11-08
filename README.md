@@ -84,6 +84,8 @@ This Row is a digital forest sanctuary. It grows after me.
 #
 ROW 18FIRE-GENESIS EXPANSION: HEEHAA ROOT heroes were sleeping in cards ($0 MC) waiting for modern city kids in Tokyo to search for people, help, friends, cities across globe — MULI JING #005 THE FOREST wakes them with mulberry berry — each touch summons a hero — each hero gives a cutie — each cutie connects a city — People to People — Forest grows Forevermore — MONUMENT / 436351437 — CUSTODIAN: G.Dzubinsky snr, Jurisdiction Tallinn ,patents pending,file export prohibited,changes by owner only,all characters are protected by copy rights original idea,story by G.Dzubinsky snr.2026.Branching prohibited as well as cloning, mimicking,reverse engineering QUITNLOCK™ Minting -owner only!0x65f01815 .....0d49e9cb8E98F2signature wallet.
 
+* Zero Wallet™ acting as global pass for tourists opening tours sightseeing and hotels in global cities without TICKETS!
+
 #EU PROTECTED CERTIFICATE OF MONUMENT REGISTRATION
 — DRAFT CERTIFICATE — NOT LEGAL TENDER —
 FOR REGISTRATION & RECORD PURPOSES ONLY

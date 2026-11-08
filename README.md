@@ -1,5 +1,5 @@
-# TREE--game
-A democratic Game -TREE™People to People and for People.Find me™,Find need# G. DZUBINSKY ROW — 18FIRE GENESIS
+# TREE--game™
+A democratic Game -TREE™People to People and for People.#Find me™,#Find need™  G.Dzubinsky Enchanted Forest Forevemore™, G. DZUBINSKY ROW — 18FIRE GENESIS
 ### `436351437-GDZUBINSKY-ROW-18FIRE-GENESIS`
 **EU Copyright Directive 2019/790 — Tallinn Protected — GitHub Sealed**
 
